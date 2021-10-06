@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @SoGros
+- 👀 I’m interested in eat tartiflette
+- 🌱 I’m currently learning MagicSpells
+- 💞️ I’m looking to collaborate on Shinoda
